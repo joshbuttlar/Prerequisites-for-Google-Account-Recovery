@@ -1,0 +1,2 @@
+# Prerequisites-for-Google-Account-Recovery
+You want to keep your Google Account safe as it is very essential for you since it provides you with innumerable features and makes your life comfortable. But what if you forget the password to access your Google Account? That is why Google Account Recovery asks you a set of questions at the time you create a Google Account to assist you in recovering your password should the need arise. Vissit Us:-  https://www.my-accountrecovery.com/google-account-recovery/
